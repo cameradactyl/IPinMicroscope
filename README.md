@@ -7,3 +7,8 @@ Cyanoacrylate (crazy glue) was used to secure the pinhole to the clip.
 
 
 There is an included Drill fixture, which you can print, and use to drill an aligned pinhole in the piece of a can, AFTER you glue the can to the front side of the microscope clip.
+
+This is a video my friend Joe made about the afternoon when we made this thing.  There is some sample footage and assembly info in there: https://www.youtube.com/watch?v=_r7bxnTX6Uk
+
+This is some sample footage on instagram:
+https://www.instagram.com/stories/highlights/17904558220527444/
